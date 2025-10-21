@@ -1,1 +1,1 @@
-# mariaakost.github
+# mariaakost.github.io
